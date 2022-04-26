@@ -1,1 +1,23 @@
-# NewRepo
+# in this Repo this is learning
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
